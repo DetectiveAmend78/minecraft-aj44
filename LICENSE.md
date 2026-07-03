@@ -1,4 +1,4 @@
-# 
+# Experience minecraft like never before with minecraft Scripts custom, the #1 Script. Includes no clip and aimbot for unbeatable performance.
 
 
 
